@@ -27,5 +27,5 @@
   - $18/Week
   - $36/Month
 
-### You can join the discord to apply for purchase [Here](https://www.elitepvpers.com/link/?https://discord.gg/kqnJ8XK7eQ)
+### You can join the discord to apply for purchase [Here](https://discord.gg/kqnJ8XK7eQ)
 ### Or, simply add my personal discord @akiraraee with display name Beamer.
